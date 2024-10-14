@@ -1,0 +1,1 @@
+# tyt-beceri-temelli-matematik-32
